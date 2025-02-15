@@ -1,2 +1,2 @@
-# Gur-
+# Guru
 Welcome Gurú Soluciones
